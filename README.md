@@ -1,4 +1,4 @@
 # ElictraGDPS
 
 best game evar
-https://media2.giphy.com/media/v1.Y2lkPTc5MGI3NjExM2FmZGE4OWVzc2MxNWttMm0wZ21kMmtna2c4bHByc3hubWN6bmgxNCZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/yAXEjUudqwdAnXa7df/giphy.gif
+
